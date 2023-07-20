@@ -59,5 +59,24 @@ F.  Acknowledge sources, using in-text citations and references, for content tha
 
 
 
+
+![0001](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/4fdfc205-9b97-4cc0-9dc2-dea40196c4c0)
+![0002](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/d1a4f03d-1f69-45d0-8248-c50748f351c2)
+![0003](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/27934ad7-0a4c-4b4b-9495-191e237b0cb4)
+![0004](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/72de2bf1-d5cc-4093-9003-097d0af5d17b)
+![0005](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/0b9ba750-7b3a-4cd1-a0f8-d0ea553fa49c)
+![0006](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/814147d0-358f-4059-8aa6-c614956c768b)
+![0007](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/eec151bd-9cea-4bc3-8870-789ab372b294)
+![0008](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/14cf8df3-f72b-4b66-bdcc-31ef13d68eaa)
+![0009](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/7a293182-8da3-4286-bb1a-fc72b73630ae)
+![0010](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/6d8bffdd-3637-4d18-b028-ac75c91e036b)
+![0011](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/71ee590c-7e2d-4778-a1cb-955511acf16c)
+![0012](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/10ccd18b-3175-4517-a19e-2039dd9d249f)
+![0013](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/2f574b99-cd13-4a6d-b639-c113e2e7ba69)
+![0014](https://github.com/Nrobi71/Video-Game-Software-Project-Proposal/assets/96146103/98281a3f-c627-4bbb-8603-ad2d8c66e8de)
+
+
+
+
 G.  Demonstrate professional communication in the content and presentation of your submission.
 
